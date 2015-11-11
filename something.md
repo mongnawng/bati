@@ -1,1 +1,1 @@
-mong nawng bati
+bati kag nawng
